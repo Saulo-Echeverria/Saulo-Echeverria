@@ -1,4 +1,4 @@
-![Cartão de Visita](https://webbranding.io/wp-content/uploads/2023/08/20230811_231535_0000.png)
+![Cartão de Visita](https://webbranding.io/wp-content/uploads/2023/08/Cartao-de-visita-Paisagem-preto-cinza.png)
 
 
 # Hi, I'm Saulo Echeverria! 👋
